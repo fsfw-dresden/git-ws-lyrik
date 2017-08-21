@@ -1,14 +1,14 @@
 Bedecke deinen Himmel, Zeus,
 Mit Wolkendunst,
 Und übe, dem Knaben gleich,
-Der Disteln rupft,
+Der Disteln köpft,
 An Eichen dich und Bergeshöhn;
 
 Mußt mir meine Erde
 Doch lassen stehn,
-Und meine Bude, die du nicht gebaut,
+Und meine Hütte, die du nicht gebaut,
 Und meinen Herd,
-Um dessen Backröhre
+Um dessen Gluth
 Du mich beneidest.
 
 Ich kenne nichts Aermeres
