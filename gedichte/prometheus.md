@@ -48,3 +48,18 @@ Hat nicht mich zum Manne geschmiedet
 Die allmächtige Zeit
 Und das ewige Schicksal,
 Meine Herrn und deine?
+
+
+Dachtest du etwa,
+Ich sollte das Leben hassen,
+In Wüsten fliehen,
+Weil nicht alle
+Blüthenträume reiften?
+Hier sitz’ ich, forme Menschen
+
+Nach meinem Bilde,
+Ein Geschlecht, das mir gleich sey,
+Zu leiden, zu weinen,
+Zu genießen und zu freuen sich,
+Und dein nicht zu achten,
+Wie YYY!
