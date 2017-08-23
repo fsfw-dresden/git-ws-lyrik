@@ -25,12 +25,12 @@ Da ich ein Kind war,
 Nicht wußte wo aus noch ein,
 Kehrt’ ich mein verirrtes Auge
 Zur Sonne, als wenn drüber wär’
-Ein Ohr, zu hören meine Sage,
+Ein Ohr, zu hören meine Klage,
 Ein Herz, wie mein’s,
 Sich des Bedrängten zu erbarmen.
 
 Wer half mir
-In der Mathe-1 Prüfung?
+Wider der Titanen Uebermuth?
 Wer rettete vom Tode mich,
 Von Sklaverey?
 Hast du nicht alles selbst vollendet,
@@ -42,7 +42,7 @@ Dem Schlafenden da droben?
 Ich dich ehren? Wofür?
 Hast du die Schmerzen gelindert
 Je des Beladenen?
-Hast du die Thränen abgetrocknet
+Hast du die Thränen gestillet
 Je des Geängsteten?
 Hat nicht mich zum Manne geschmiedet
 Die allmächtige Zeit
@@ -50,7 +50,7 @@ Und das ewige Schicksal,
 Meine Herrn und deine?
 
 
-Dachtest du etwa,
+Wähntest du etwa,
 Ich sollte das Leben hassen,
 In Wüsten fliehen,
 Weil nicht alle
